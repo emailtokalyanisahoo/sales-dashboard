@@ -30,6 +30,12 @@ helping you understand demand for different shipping option .
 
 
 
+![Image](https://github.com/user-attachments/assets/eb15f3ab-a8b9-4f0b-a791-b022751bc1a0)
+
+
+
+
+
 
 
 
